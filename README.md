@@ -1,2 +1,4 @@
 0xWikiLive
 ==========
+
+[http://0x010c.fr/0xwikilive.html](http://0x010c.fr/0xwikilive.html)
